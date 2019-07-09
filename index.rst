@@ -39,6 +39,7 @@ will receive on the registered Email id.
 
 `mcafee activate <http://mcafeeactivateretailcardnow.com>`__.
 
+`mcafee com activate <http://mcafeeactivateretailcardnow.com>`__.
 
 Mcafee Activate Total Protection
 ============
@@ -50,3 +51,21 @@ disc drive to set up software in user’s system.
 
 
 `www.mcafee.com/activate total protection <http://mcafeeactivateretailcardnow.com>`__.
+
+`www.mcafee.com/activate <http://mcafeeactivateretailcardnow.com>`__.
+
+`Mcafee Activate  <http://mcafeeactivateretailcardnow.com>`__.
+
+`www.mcafee.com/mav/retailcard <https://mcafeeactivateretailcardnow.com/www-mcafee-com-mav-retailcard/>`__.
+
+`www.mcafee.com/mis/retailcard <http://mcafeeactivateretailcardnow.com/www-mcafee-com-mis-retailcard>`__.
+
+`www.mcafee.com/mtp/retailcard <https://mcafeeactivateretailcardnow.com/www-mcafee-com-mtp-retailcard/>`__.
+
+`www.mcafee.com/mls/retailcard <https://mcafeeactivateretailcardnow.com/www-mcafee-com-mls-retailcard/>`__.
+
+`www.mcafee.com/dellactivation <https://mcafeeactivateretailcardnow.com/www-mcafee-com-dellactivation/>`__.
+
+`www.mcafee.com/activatedell <https://mcafeeactivateretailcardnow.com/www-mcafee-com-dellactivation/>`__.
+
+http://mcafeeactivateretailcardnow.com
