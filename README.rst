@@ -4,3 +4,4 @@ McAfee Activate For a higher level of protection with advanced features, you can
 
 http://mcafeeactivateretailcardnow.com
 McAfee MTP retail card is provided by the McAfee shops or on mcafee.com/mtp/retailcard to activate this program for protecting systems private data and keeping systems protected from online hazards. The McAfee MTP retail credit card allows the users to download McAfee total protection software from internet rather than using Compact disc drive to set up software in user’s system.
+
