@@ -1,2 +1,3 @@
 McAfee Activate For a higher level of protection with advanced features, you can purchase the McAfee Antivirus Plus. With this, you get complete protection and some features that you might require to protect your system against powerful viruses. This version comes with its own McAfee MAV retail card ,and you can use it to activate your copy and stay protected.
 http://mcafeeactivateretailcardnow.com
+[url=http://mcafeeactivateretailcardnow.com]mcafee.com/activate[/url]
