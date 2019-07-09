@@ -49,12 +49,22 @@ rotecting systems private data and keeping systems protected from online hazards
 he users to download McAfee total protection software from internet rather than using Compact 
 disc drive to set up software in user’s system.
 
+In offline method, users is going to local purchase and store McAfee Retail Card. This offline McAfee product pack consists of a Product and CD Key. Compact disc for McAfee Product and Product Key for activation of this Product.
+
+McAfee antivirus products can be downloaded by users offline by given methods mentioned below:
 
 `www.mcafee.com/activate total protection <http://mcafeeactivateretailcardnow.com>`__.
 
 `www.mcafee.com/activate <http://mcafeeactivateretailcardnow.com>`__.
 
 `Mcafee Activate  <http://mcafeeactivateretailcardnow.com>`__.
+
+`mcafee.com/activate <http://mcafeeactivateretailcardnow.com>`__.
+
+1. To begin with insert that CD of the McAfee antivirus product in the Compact disc /DVD drive.
+2. And today, explore it to start the set up process.
+3. Now wait till the McAfee product gets installed on these devices successfully.
+
 
 `www.mcafee.com/mav/retailcard <https://mcafeeactivateretailcardnow.com/www-mcafee-com-mav-retailcard/>`__.
 
