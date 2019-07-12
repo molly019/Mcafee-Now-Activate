@@ -79,3 +79,22 @@ McAfee antivirus products can be downloaded by users offline by given methods me
 `www.mcafee.com/activatedell <https://mcafeeactivateretailcardnow.com/www-mcafee-com-dellactivation/>`__.
 
 http://mcafeeactivateretailcardnow.com
+
+Despite the fact that McAfee might be incredible in malware evacuation, it sure can end up being an irritation once the time for testing is surpassed. In the event that you need to keep utilizing McAfee than it won't be an issue – you have to pay for the permit. In any case, on the off chance that you don't, at that point that can be a touch of an issue. Pop-ups in regards to recharging the memberships keep springing up and the most exceedingly terrible it will likewise not let you empower the inbuilt Windows Defender security, in this way leaving the entire framework defenseless. 
+ 
+While one can uninstall McAfee Internet Security or McAfee Antivirus programming through the Control Panel > Programs and Features applet, the procedure is numerous multiple times ineffective. Regardless of whether it succeeds, it leaves a great deal of garbage vault and documents behind. 
+
+`www mcafee com activate <http://mcafeeactivateretailcardnow.com>`__.
+
+`mcafee com activate total protection  <http://mcafeeactivateretailcardnow.com>`__.
+
+`www mcafee com activate livesafe <http://mcafeeactivateretailcardnow.com>`__.
+
+McAfee also offers its protection to Mac users. In fact, the Californian company has released products such as McAfee Internet Security for Mac and McAfee Endpoint Security for Mac that protect MacOS from malware designed for the Apple operating system and “classics” virus for Windows (which can not attack macOS, but should be avoided the same if you share files with Windows PC).
+Disabling McAfee on Mac is as simple as it is on Windows. All you have to do is start the application by selecting its icon from the macOS Launchpad (the rocket icon located on the Dock bar). Then you have to click on the name of the program in the bar on the top left (eg McAfee Endpoint Security for Mac) and select the Preferences item from the menu that appears.
+
+`mcafee activate enter code <http://mcafeeactivateretailcardnow.com>`__.
+
+`www mcafee activate  <http://mcafeeactivateretailcardnow.com>`__.
+
+`mcafee activate product key <http://mcafeeactivateretailcardnow.com>`__.
